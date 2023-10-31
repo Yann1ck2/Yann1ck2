@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there I'm starting to use GitHub 🦦🚀
 
 <!--
 **Yann1ck2/Yann1ck2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
